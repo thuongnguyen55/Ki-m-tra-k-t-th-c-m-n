@@ -1,1 +1,0 @@
-# Ki-m-tra-k-t-th-c-m-n
